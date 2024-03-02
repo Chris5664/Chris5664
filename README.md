@@ -10,13 +10,11 @@
 
 - 👯 I’m looking to collaborate on **any project**
 
-- 👨‍💻 All of my projects are available at [https://github.com/calextus](https://github.com/calextus)
+- 👨‍💻 All of my projects are available at [https://github.com/chris5664](https://github.com/chris5664)
 
 - 💬 Ask me about **anything**
 
 - 📫 How to reach me **christopherlehoko8@gmail.com**
-
-- ⚡ Fun fact **I am also Spiritual**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
